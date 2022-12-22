@@ -5,4 +5,4 @@ Atualmente trabalho como Analista de sistemas voltado para o ambiente de **ERP (
 
 Tenho por Hobby um canal no **Youtube** onde posto vídeos de Unboxing / Reviews dos produtos que costumo comprar, [Solvezera](https://www.youtube.com/@Solvezera)
 
-Atualmente também estou me empenhando em ajudar a Comunidade Hackintsoh, portanto, as EFIs que eu criar para meus computadores, vou deixar disponíveis para download aqui.
+Também estou me empenhando em ajudar a Comunidade Hackintsoh, portanto, as EFIs que eu criar para meus computadores, vou deixar disponíveis para download aqui.
