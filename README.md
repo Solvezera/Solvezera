@@ -1,3 +1,5 @@
+[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/Z8Z0HZOAZ)
+
 ## _Fala pessoal, Solvezera por aqui! 👋_ 
 Primeiramente gostaria de pedir que vocês se inscrevam no meu canal do Youtube: [Solvezera](https://www.youtube.com/@Solvezera)
 
